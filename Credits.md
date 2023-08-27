@@ -1,20 +1,20 @@
 ## Credits
 
-~~ BOT CREATORS ~~
+**~~ BOT CREATORS ~~**
 
 -CRIEX (**lolkekxhe#0892 ON DISCORD**)
 
--𓀐    (**.xepococ On Discord**)
+-𓀐 (**.xepococ On Discord**)
 
-~~ SERVER MANAGER ~~
+**~~ SERVER MANAGER ~~**
 
 -RICKROLL13  (**urmom1885 On Discord**)
 
-~~ CONTRIBUTORS  ~~
+**~~ CONTRIBUTORS  ~~**
 
 **Currently Empty**
 
-~~ REP HOLDER ~~
+**~~ REP HOLDER ~~**
 
 -PHOBOS! (**scripticon on Discord**)
 
